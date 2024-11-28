@@ -1,1 +1,0 @@
-# lycee-girondin.github.io
